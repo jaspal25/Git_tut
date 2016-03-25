@@ -1,0 +1,3 @@
+# Git_tut
+
+##IF YOU DONT LIKE IT DNT USE IT!!!
